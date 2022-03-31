@@ -3,4 +3,6 @@
 * This is so cool.
 * You must play it lol.
 * Also idk how to make source lol.
-* Will soon archive this and replace it with something cooler :).
+* Forget it. I'm not archiving this lol.
+* But something cooler is in development!
+* :)
